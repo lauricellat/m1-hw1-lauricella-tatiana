@@ -8,5 +8,5 @@ I have no coding experience.
 1. Lead learning experience design department.
 2. Make passive income from makeup videos.  
     1. Freedom to work for myself
-    2. Follow passion
+
 
