@@ -1,5 +1,5 @@
 # My First Project
-![Alt text](nrm_1428945400-moinca.jpg)
+![This is an image describing my personality.](nrm_1428945400-moinca.jpg)
 ## About Me
 I am a former elementary school teacher turned instructional designer. I completed my undergrad and grad school at UF. I am a part time makeup artist. 
 ## Past Coding Experience
