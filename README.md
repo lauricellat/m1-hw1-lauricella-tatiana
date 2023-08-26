@@ -5,8 +5,8 @@ I am a former elementary school special education teacher turned instructional d
 ## Past Coding Experience
 I have no coding experience. 
 ## Career Goals 
-1. Lead learning experience design department.
-2. Make passive income from makeup videos.  
-    1. The freedom to work for myself. 
+1. Lead learning experience design department
+2. Make passive income from makeup videos  
+    1. The freedom to work for myself 
 
 
